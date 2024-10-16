@@ -1,1 +1,0 @@
-# LP_ICT9EMERALD_Q1Project_StaMaria_JohnGabriel
